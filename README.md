@@ -4,5 +4,13 @@
 
 - Mike
 - Laurah
-- Monsuer Luk 
 - New Member
+- Pauline
+- Serena
+- Monsuer Luk
+- Victor
+- Suzan
+- Victor
+- Alvin
+- Monsieur Luk
+- Dora
