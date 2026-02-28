@@ -4,5 +4,12 @@
 
 - Mike
 - Laurah
-- Monsuer Luk 
 - Serena
+- Monsuer Luk
+- Victor
+- Suzan
+- Victor
+- Alvin
+- Monsieur Luk
+- Dora
+
