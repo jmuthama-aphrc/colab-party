@@ -4,6 +4,7 @@
 
 - Mike
 - Laurah
+- David Nene
 - New Member
 - Pauline
 - Serena
