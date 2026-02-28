@@ -4,6 +4,8 @@
 
 - Mike
 - Laurah
+- Monsuer Luk
+- Victor
 - Suzan
 - Victor
 - Alvin
