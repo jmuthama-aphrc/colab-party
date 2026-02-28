@@ -4,6 +4,7 @@
 
 - Mike
 - Laurah
+- New Member
 - Pauline
 - Serena
 - Monsuer Luk
@@ -13,4 +14,3 @@
 - Alvin
 - Monsieur Luk
 - Dora
-
